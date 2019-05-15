@@ -3,12 +3,14 @@ Books I have read, will read, or, am interested in reading.
 
 #### In Progress
 
-###### [Deep Work: Rules for Focused Success in a Distracted World](https://www.audible.co.uk/pd/Deep-Work-Audiobook/B01D0E32T8?ref=a_lib_c4_libItem_0_B01D0E32T8&pf_rd_p=4c1af09b-88bf-4c97-bfd2-e765f91b1968&pf_rd_r=9VHVNMVPYT48H259Y1N5)
+###### [Spark Joy](https://www.audible.co.uk/pd/Spark-Joy-Audiobook/B072J8S3XH?ref=a_lib_c4_libItem_B072J8S3XH&pf_rd_p=4c1af09b-88bf-4c97-bfd2-e765f91b1968&pf_rd_r=VD1565GNZ8MWNTNQ65HE)
 
 #### Interested 
 
 
 #### Complete
+
+###### [Deep Work: Rules for Focused Success in a Distracted World](https://www.audible.co.uk/pd/Deep-Work-Audiobook/B01D0E32T8?ref=a_lib_c4_libItem_0_B01D0E32T8&pf_rd_p=4c1af09b-88bf-4c97-bfd2-e765f91b1968&pf_rd_r=9VHVNMVPYT48H259Y1N5)
 
 ###### [Getting Things Done](https://www.audible.co.uk/pd/Getting-Things-Done-Audiobook/B01B6WT3JY?ref=a_lib_c4_libItem_0_B01B6WT3JY&pf_rd_p=4c1af09b-88bf-4c97-bfd2-e765f91b1968&pf_rd_r=7K485P79NZB22CJX3P90&)
 
