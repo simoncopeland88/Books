@@ -3,12 +3,14 @@ Books I have read, will read, or, am interested in reading.
 
 #### In Progress
 
-###### [Measure What Matters: OKRs: The Simple Idea That Drives 10x Growth](https://www.audible.co.uk/pd/Measure-What-Matters-Audiobook/0241391407?ref=a_lib_c4_libItem_0241391407&pf_rd_p=4c1af09b-88bf-4c97-bfd2-e765f91b1968&pf_rd_r=SK42Y76BSESSD2D6AYSR)
+
 
 #### Interested 
 
 
 #### Complete
+
+###### [Measure What Matters: OKRs: The Simple Idea That Drives 10x Growth](https://www.audible.co.uk/pd/Measure-What-Matters-Audiobook/0241391407?ref=a_lib_c4_libItem_0241391407&pf_rd_p=4c1af09b-88bf-4c97-bfd2-e765f91b1968&pf_rd_r=SK42Y76BSESSD2D6AYSR)
 
 ###### [Spark Joy](https://www.audible.co.uk/pd/Spark-Joy-Audiobook/B072J8S3XH?ref=a_lib_c4_libItem_B072J8S3XH&pf_rd_p=4c1af09b-88bf-4c97-bfd2-e765f91b1968&pf_rd_r=VD1565GNZ8MWNTNQ65HE)
 
