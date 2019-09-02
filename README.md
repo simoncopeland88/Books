@@ -3,7 +3,7 @@ Books I have read, will read, or, am interested in reading.
 
 #### In Progress
 
-###### [Clockwork: Design Your Business to Run Itself](https://www.audible.co.uk/pd/Clockwork-Audiobook/B07G1RJ2KW?pf_rd_p=4c1af09b-88bf-4c97-bfd2-e765f91b1968&pf_rd_r=244VZGJ6JPA69T5G0Z2C&ref=a_lib_c4_libItem_B07G1RJ2KW)
+
 
 #### Interested 
 
@@ -14,6 +14,13 @@ Books I have read, will read, or, am interested in reading.
 
 #### Complete
 
+###### [Hooked: How to Build Habit-Forming Products](https://www.audible.co.uk/pd/Hooked-How-to-Build-Habit-Forming-Products-Audiobook/B00HZNS610?pf_rd_p=763a8d97-e086-4e41-a6d0-a33e3bcf3c97&pf_rd_r=DSSCXE8094Q4P8WKG9DX&ref=a_lib_c4_libItem_B00HZNS610)
+
+###### [The Toilet Paper Entrepreneur: The Tell-it-Like-it-is Guide to Cleaning Up in Business, Even if You Are at the End of Your Roll](https://www.audible.co.uk/pd/The-Toilet-Paper-Entrepreneur-Audiobook/B00FKC60D4?pf_rd_p=763a8d97-e086-4e41-a6d0-a33e3bcf3c97&pf_rd_r=DSSCXE8094Q4P8WKG9DX&ref=a_lib_c4_libItem_B00FKC60D4)
+
+###### [Minimalism: Live a Meaningful Life, Second Edition](https://www.audible.co.uk/pd/Minimalism-Audiobook/B01MRIQ48W?pf_rd_p=763a8d97-e086-4e41-a6d0-a33e3bcf3c97&pf_rd_r=DSSCXE8094Q4P8WKG9DX&ref=a_lib_c4_libItem_B01MRIQ48W)
+
+###### [Clockwork: Design Your Business to Run Itself](https://www.audible.co.uk/pd/Clockwork-Audiobook/B07G1RJ2KW?pf_rd_p=4c1af09b-88bf-4c97-bfd2-e765f91b1968&pf_rd_r=244VZGJ6JPA69T5G0Z2C&ref=a_lib_c4_libItem_B07G1RJ2KW)
 
 ###### [Retire Inspired: It's Not an Age, It's a Financial Number](https://www.audible.co.uk/pd/Retire-Inspired-Audiobook/B019HKS8DE?pf_rd_p=e1cdc374-bfae-4b90-8581-d902e7ed449f&pf_rd_r=PXENKZ6FGS43GJJFZKYK&ref=a_wl_c5_desk_pg0_30)
 
